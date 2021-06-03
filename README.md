@@ -1,1 +1,1 @@
-# buttter-chicken
+Butter Chicken is probably one of the most popular Indian chicken recipes liked by all .It is a noorthern dish which was originally invented in northern parts of india .It is a creamy dish
